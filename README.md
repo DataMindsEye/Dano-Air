@@ -75,3 +75,5 @@ By implementing these recommendations, the airline can improve customer satisfac
  ---
  
  ![](Thank_you_2.jpeg)
+
+ ## You can connect with me on LinkedIn [here](linkedin.com/in/ruth-omoizirein)
